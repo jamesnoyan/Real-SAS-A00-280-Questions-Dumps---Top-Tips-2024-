@@ -4,7 +4,7 @@
 
 <p style="text-align: justify;"><strong>Click here for More Info: <a href="https://www.certs2pass.com/sas/a00-280-questions">https://www.certs2pass.com/sas/a00-280-questions</a></strong></p>
 
-<h3><strong><span style="display:block; color:Green;">Why Choose PassitCertify For SAS A00-280 Exam Dumps: </span></strong></h3>
+<h3><strong><span style="display:block; color:Green;">Why Choose Certs2Pass For SAS A00-280 Exam Dumps: </span></strong></h3>
 
 <p style="text-align: justify;">100% Authentic SAS A00-280 Practice Tests</p>
 
